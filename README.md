@@ -13,5 +13,5 @@ Narayangonj Ideal School is celebrating its Silver Jubilee, marking 25 years of 
 - Secure data handling
 
 ## Website Link:
-**[Visit the Registration Website](https://nissilverjubilee.free.nf)**
+**[Visit the Registration Website](http://nissilverjubilee.free.nf)**
 
